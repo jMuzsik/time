@@ -1,7 +1,7 @@
 # time
 
-## is of the utmost importance
+## The instant is the only time there is
 
 ![](IMG_2421.JPG)
 
-### As is Dusty
+### Dusty was one of my favorite instants
